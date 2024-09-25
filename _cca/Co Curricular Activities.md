@@ -164,7 +164,7 @@ values and attitudes through sustained participation.</p>
 however, they may request for a change of CCA:
 <br>- At the end of P3; and
 <br>- At the end of P4 if the student is not a school team player or involved
-in SYF
+in SYF.
 <br>
 <br>For parents who would like to request for change of CCA, please click
 on the link below and print the Change of CCA Form. Parents are to fill
